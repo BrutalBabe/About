@@ -1,2 +1,2 @@
-# Gitting Some Practice
+# A Short Personal Bio
 ## Janna Mooneyham
